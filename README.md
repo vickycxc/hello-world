@@ -6,4 +6,4 @@ that's why.
 
 i learn this.
 
-ajr is only from ALlah
+ajr is only from Allah
